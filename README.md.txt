@@ -1,2 +1,5 @@
-a
-a and b
+20182686 Shin Jeonghyun    Kookmin univ. biz
+
+
+
+and i love computer
